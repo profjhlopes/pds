@@ -7,4 +7,4 @@ Datas importantes
 
 16/11 - apresentação projetos 
 
-27/11 - prova 
+27/11 - avaliação teórica 
